@@ -13,7 +13,7 @@ My hobbies include...
 
 
 
-[google](google.com)
+
 
 
 # 💻 Tech Stack:
