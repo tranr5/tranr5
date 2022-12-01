@@ -15,7 +15,7 @@ My hobbies include...
 
 Learn more at...
 
-- [https://linkedin.com](linkedin.com/in/tranr4)
+- [7](linkedin.com/in/tranr4/)
 
 
 
