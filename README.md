@@ -8,8 +8,6 @@ My hobbies include...
 - :climbing: Rockclimbing
 - :art: Painting
 - :earth_americas: Traveling the world
-- :tennis: Pickleball
-- :thread: Sewing
 
 
 
